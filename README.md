@@ -1,0 +1,1 @@
+# oujisamasenpai.github.io
